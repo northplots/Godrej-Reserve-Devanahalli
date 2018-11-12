@@ -1,0 +1,2 @@
+# Godrej-Reserve-Devanahalli
+www.godrejreserve.ind.in - Development Type: Plots - Development Stage: Pre Launch - Development Size: 92.7 Acres - No Of Units: 950 Plots - Unit Type: Nest, Cottage, Bungalow, Mansion, Estate - SBA: 1200 - 3200 Sq Ft -  Possession: 2020 Onwards -  Project Location: Devanahalli, Near To Kempegowda International Airport, North Bangalore. CHECK: https://www.ipinit.in/user/godrejreserve-ind-in/
